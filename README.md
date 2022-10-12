@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently in training at becode.org<br>👯 I’m currently learning back-end languages.<br>🤝 I’m looking for help with my learning!<br>💬 Ask me about new projects and cats!<br>💻I am also currently looking for an internship, if you are interested contact me here :<br>📧hazemmaddourib@gmail.com<br><br>⭐Fun fact : Did you know that a Ring Tailed Lemur's tail is longer than it's body?
+🔭 I’m currently in training at becode.org<br>👯 I’m currently learning back-end languages.<br>🤝 I’m looking for a mentor!<br>💬 Ask me about new projects and cats!<br>💻I am also currently looking for an internship, if you are interested contact me here :<br>📧hazemmaddourib@gmail.com<br><br>⭐Fun fact : Did you know that a Ring Tailed Lemur's tail is longer than it's body?
 
 
 ## 🌐 Socials:
